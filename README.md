@@ -1,1 +1,0 @@
-# blown-lift-paper.github.io
